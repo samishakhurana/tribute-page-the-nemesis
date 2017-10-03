@@ -1,5 +1,2 @@
-# Glimpse to life of Sunder Pichai
-*The man taking google to next level*
-## Contributors
-**The Nemesis**
-
+## Sneak peak in the life of Sunder Pichai ##
+*An IITian who is transforming Google*
